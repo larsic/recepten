@@ -12,7 +12,7 @@ Voor 6 personen
 - 4 koffielepels (5ml) _Amaretto_ of _Cognac_ of _Een likeur naar smaak_
 - 200g _Boudoirs_ of _Speculaas_
 - 3 soeplepels _Cacaopoeder_
-- 1 fles Amaretto
+
 
 ## Bereiding
 
