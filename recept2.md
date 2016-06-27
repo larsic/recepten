@@ -1,6 +1,6 @@
 # Tiramisu
 
-Voor 66 personen
+Voor 7 personen
 
 ik wel
 
