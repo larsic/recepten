@@ -1,6 +1,6 @@
 # Tiramisu
 
-Voor 6 personen
+Voor 8 personen
 
 
 ik hou niet van tiramisu...
