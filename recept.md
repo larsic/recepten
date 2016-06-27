@@ -4,7 +4,7 @@ Voor 6 personen
 
 ## Benodigdheden
 
-- 500g _Mascarpone Galbani_ (romige Italiaanse zachte kaas)
+- 500g _Mascarpone_ (romige Italiaanse zachte kaas)
 - 1.25dl sterke _Koffie_ (ev. expresso)
 - 2 _Eirerdooiers_
 - 2 _Eiwitten_
